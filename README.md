@@ -1,2 +1,7 @@
-<img width="1366" height="3072" alt="Zwart en beige strak en eenvoudig B2B zakelijke website (1) (2)" src="https://github.com/user-attachments/assets/6777282a-2284-4b83-b1e3-e5e59909ba32" />
+<img width="1366" height="3072" alt="Zwart en beige strak en eenvoudig B2B zakelijke website (2)" src="https://github.com/user-attachments/assets/7b83e5db-93d4-4839-9874-9a30a07ed628" />
+<img width="1366" height="3072" alt="Zwart en beige strak en eenvoudig B2B zakelijke website (2)" src="https://github.com/user-attachments/assets/7b83e5db-93d4-4839-9874-9a30a07ed628" />
+![Uploading Zwart en beige strak en eenvoudig B2B zakelijke website (2).png…]()
+![Uploading Zwart en beige strak en eenvoudig B2B zakelijke website (2).png…]()
+
+
 
